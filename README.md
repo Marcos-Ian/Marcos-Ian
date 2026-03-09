@@ -20,6 +20,6 @@ I’m into astronomy and weird historical facts
 
 I play guitar and love music theory
 
-Big fan of anime and the gym
+Big fan of games and the gym
 
 Hobbies: coding, building startups, gaming, and creative projects
